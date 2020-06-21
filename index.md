@@ -1,1 +1,2 @@
-Hier entsteht gerade eine Webseite zu meinem Lieblingscharakter!
+# Toller Kerl mit langem Ruessel
+Dieser Herr hat die Kompetenz zu saugen. Sein Rüssel ist einen knappen Meter lang. Ob Boden, Moebel, Polster oder Textilien. Wo er aktiv wird, wird nichts liegen gelassen. Sind die Hindernisse zu groß, kann es jedoch zu Verstopfungen kommen. 
