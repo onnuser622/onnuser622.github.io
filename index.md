@@ -5,3 +5,4 @@ Dieser Herr hat die Kompetenz zu saugen. Sein Rüssel ist einen knappen Meter la
 * Folgt Dir bis zum Ende der Leitung 
 * Pustet die Luft wieder nach Draußen
 >suuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu wirbel, wirbel, flutsch, suuuuu
+<img src="https://images.unsplash.com/photo-1569698134101-f15cde5cd66c?ixlib=rb-1.2.1&ixid=eyJhcHBfaWQiOjEyMDd9&auto=format&fit=crop&w=700&q=60"
