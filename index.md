@@ -4,3 +4,4 @@ Dieser Herr hat die Kompetenz zu saugen. Sein Rüssel ist einen knappen Meter la
 * Ersetzt Deinen alten Besen 
 * Folgt Dir bis zum Ende der Leitung 
 * Pustet die Luft wieder nach Draußen
+>suuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu wirbel, wirbel, flutsch, suuuuu
